@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+### Founder YP Dev
+
+### Train yourself to let go of everything you fear to lose - Master Yoda
+
 <!--
 **Yatzzzz/Yatzzzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
