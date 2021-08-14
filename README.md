@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### Founder YP Dev
+### Founder YP Development
 
 ### Train yourself to let go of everything you fear to lose - Master Yoda
 
